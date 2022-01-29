@@ -8,3 +8,7 @@ Now time to pick up knowledge.
 * Ideas
 * Collaboration
 * Progress too
+# A Little Bit about Myself
+* I am a Father of 3 wondersful boys
+* Came to Langara to Stuy=dy
+* Not the easiests of experiences though
